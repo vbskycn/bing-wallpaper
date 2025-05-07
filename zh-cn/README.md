@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://cn.bing.com/th?id=OHR.DunluceIreland_ZH-CN2412229757_UHD.jpg&w=1000)Today: [邓路斯城堡，安特里姆郡，北爱尔�� (© DieterMeyrl/Getty Images)](https://cn.bing.com/th?id=OHR.DunluceIreland_ZH-CN2412229757_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.DunluceIreland_ZH-CN2412229757_UHD.jpg&w=1000)Today: [邓路斯城堡，安特里姆郡，北爱尔兰 (© DieterMeyrl/Getty Images)](https://cn.bing.com/th?id=OHR.DunluceIreland_ZH-CN2412229757_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.DunluceIreland_ZH-CN2412229757_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-05-07 [download 4k](https://cn.bing.com/th?id=OHR.DunluceIreland_ZH-CN2412229757_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://cn.bing.com/th?id=OHR.DunluceIreland_ZH-CN2412229757_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-05-07 [download 4k](https://cn.bing.com/th?id=OHR.DunluceIreland_ZH-CN2412229757_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://cn.bing.com/th?id=OHR.FlyoverNamibia_ZH-CN2114171516_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-05-06 [download 4k](https://cn.bing.com/th?id=OHR.FlyoverNamibia_ZH-CN2114171516_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
