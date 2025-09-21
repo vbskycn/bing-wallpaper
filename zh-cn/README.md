@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://cn.bing.com/th?id=OHR.IceOtters_ZH-CN5393791969_UHD.jpg&w=1000)Today: [海獭，威廉王子湾���阿拉斯加州，美国 (© Gerald Corsi/Getty Images)](https://cn.bing.com/th?id=OHR.IceOtters_ZH-CN5393791969_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.IceOtters_ZH-CN5393791969_UHD.jpg&w=1000)Today: [海獭，威廉王子湾，阿拉斯加州，美国 (© Gerald Corsi/Getty Images)](https://cn.bing.com/th?id=OHR.IceOtters_ZH-CN5393791969_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.IceOtters_ZH-CN5393791969_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-09-21 [download 4k](https://cn.bing.com/th?id=OHR.IceOtters_ZH-CN5393791969_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://cn.bing.com/th?id=OHR.IceOtters_ZH-CN5393791969_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-09-21 [download 4k](https://cn.bing.com/th?id=OHR.IceOtters_ZH-CN5393791969_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://cn.bing.com/th?id=OHR.OktoberfestSwing_ZH-CN5270146600_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-09-20 [download 4k](https://cn.bing.com/th?id=OHR.OktoberfestSwing_ZH-CN5270146600_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
